@@ -1,4 +1,4 @@
-**Welcome to My Website,** where creativity meets innovation. This site is a showcase of modern design, intuitive user experiences, and dynamic functionality that brings your ideas to life. 
+**Welcome to Exquisite to the touch,** where creativity meets innovation. This site is a showcase of modern design, intuitive user experiences, and dynamic functionality that brings your ideas to life. 
 
 ### **What It’s About**
 This website is all about delivering value through clean design and purposeful interactions. Whether you’re exploring my portfolio, checking out new features, or navigating through expertly crafted content, the experience is tailored to both inform and inspire.
